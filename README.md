@@ -13,7 +13,7 @@
 ## Linkdin Profile
 For any queries regarding about this project contact me
 
-Link : https://www.linkedin.com/in/anil-l-b023631b6/
+Link : https://www.linkedin.com/in/harsini-velurajan-29595a291/
 
 ## Video Demo
 
